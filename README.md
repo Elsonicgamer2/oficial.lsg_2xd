@@ -1,0 +1,1 @@
+# oficial.lsg_2xd
